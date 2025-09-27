@@ -13,6 +13,7 @@
 - ꒦꒷⩩ PRONOUNS; any . pronouns shown for cos. ᶻ 𝗓 𐰁
 
 - ꒦꒷⩩ INTERESTS; Dandys world,FNAF,Danganronpa,Still wakes the deep,mycopsychosys,batim,pig64,Omori. (alot more ive forgotten) ᶻ 𝗓 𐰁
+
 --
 
  ꔛ*𓈒✦ DISCORD ; ANGELICRAVEZZ 
