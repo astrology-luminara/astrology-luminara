@@ -5,7 +5,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=F7F6AD&width=435&lines=Cmere+!+Hehe!;Hug+time+!+;Free+hugs+!)](https://git.io/typing-svg)
 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
 * 𖥻 ִ ۫  ּ info !*
 --
@@ -16,7 +16,7 @@
 
 - ꒦꒷⩩ INTERESTS; Dandys world,FNAF,Danganronpa,Still wakes the deep,mycopsychosys,batim,pig64,Omori. (alot more ive forgotten) ᶻ 𝗓 𐰁
 
-- ꒦꒷⩩ DNI ; darkshippers,proshippers,ragebaiters,homophobes & racists.
+- ꒦꒷⩩ DNI ; darkshippers,proshippers,ragebaiters,homophobes & racists. ᶻ 𝗓 𐰁
 
  `any age range is fine, just dont be weird` 
 
