@@ -1,29 +1,30 @@
   
 
-![tumblr_d1cd3d2b9c3b5950fd610360c816b6fc_00f3ae5f_640](https://github.com/user-attachments/assets/2b965902-f5bd-4161-8af3-e429ce76236a)
+<img width="1500" height="500" alt="17596030610932270292542787506605" src="https://github.com/user-attachments/assets/9afb714f-89aa-400e-9e6f-6b917425ea3b" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=17&pause=1000&color=366D90&multiline=true&width=435&lines=She+was+just+like+the+moon.;Part+of+her+was+always+hidden+away.)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=F7F6AD&width=435&lines=Cmere+!+Hehe!;Hug+time+!+;Free+hugs+!)](https://git.io/typing-svg)
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔
 
-*account is 4 other socials to link with.* 
+*im out of ideas*
 --
-- ꒦꒷⩩ NICKNAMES; gummy, goob, raver, scratchrecord, electric. ᶻ 𝗓 𐰁
+- ꒦꒷⩩ NICKNAMES; gummy, goob, raver,)pref scratchrecord, electric. ᶻ 𝗓 𐰁
 
 - ꒦꒷⩩ PRONOUNS; any . pronouns shown for cos. ᶻ 𝗓 𐰁
 
 - ꒦꒷⩩ INTERESTS; Dandys world,FNAF,Danganronpa,Still wakes the deep,mycopsychosys,batim,pig64,Omori. (alot more ive forgotten) ᶻ 𝗓 𐰁
 
-🌙💤 SOCIALS ; 
+🦴🐾 SOCIALS ; 
 
  ꔛ*𓈒✦ DISCORD ; ANGELICRAVEZZ 
 
  ꔛ*𓈒✦ ROBLOX ; KATWITCH7 
 
-ꔛ*𓈒✦ {OLD} STRAWPAGE ; https://m1rr0rv4n1tyzz.straw.page/
+ ꔛ*𓈒✦ {OLD} STRAWPAGE ; https://m1rr0rv4n1tyzz.straw.page/
 
-`dollie ml 🩷`
 
- <img width="736" height="500" alt="image" src="https://github.com/user-attachments/assets/e3313bfb-6be7-430e-8b40-ed925b934925" />
 
- ༉‧₊˚. pfp & banner art ; seraphbun on pint ! 
+ <img width="1500" height="400" alt="17596031113636328802860253939326" src="https://github.com/user-attachments/assets/e4ed2f40-3392-4869-8f18-131f322686f6" />
+
+
